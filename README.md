@@ -6,5 +6,5 @@
 >2. Eddie Murphy as *Donkey*
 >3. Cameron Diaz as *Princess Fiona*
 >4. Conrad Vernon as *Gingerbread Man*
->5. John Lithgow as *Lord Farquad*
+>5. John Lithgow as *Lord Farquaad*
 
